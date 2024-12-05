@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning pythone language
 - 💞️ I’m looking to collaborate with @psauto32
 - 📫 How to reach me on Telegram: @banderolls
-- 😄 Pronouns: 
+- 😄 Pronouns: We not you, we will building new word in peace
 - ⚡ Fun fact: I'm noob 
 
 <!---
